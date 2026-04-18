@@ -6,8 +6,6 @@ Int : Anyone unless in my dni list.
 
 Pronouns : She/Her .
 
-Pan orientated Aroace .
-
 ,
 
 Fandoms :
