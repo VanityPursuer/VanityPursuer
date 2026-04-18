@@ -24,7 +24,7 @@ Evade , and Forsaken
 
 I don't have any socials like TikTok,etc .
 
-If you wanna be my freind feel free to talk comfortably with me I'm not the judgemental type unless there is reason .
+If you wanna be my freind feel free to talk comfortably with me I'm not the judgemental type unless there is reason or,ofc,you're in my dni list .
 
 ,
 
