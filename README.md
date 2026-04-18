@@ -4,9 +4,9 @@ Int : Anyone unless in my dni list.
 
 ,
 
-Pronouns : She/Her.
+Pronouns : She/Her .
 
-Pan orientated Aroace and Fictionsexual .
+Pan orientated Aroace .
 
 ,
 
