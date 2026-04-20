@@ -34,7 +34,7 @@ My only language is English and I only know small words of Spanish and French .
 
 Sometimes might be offline for a day or 2 (occasionally longer) to be away from screens or if I'm busy .
 
-,
+
 
 (Idk what else to put but thx for taking your time to read this if you did :D)
 
